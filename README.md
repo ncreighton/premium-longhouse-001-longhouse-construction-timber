@@ -1,0 +1,2 @@
+# premium-longhouse-001-longhouse-construction-timber
+Tired of juggling spreadsheets, scattered notes, and dozens of tabs to coordinate your longhouse timber frame project? The Longhouse Construction Timber Frame Planner brings every detail—from timber sourcing to joinery diagrams—into one cohesive Notion workspace.  This planner eliminates the chaos of traditional project management by providing a st
